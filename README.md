@@ -1,4 +1,2 @@
 # Python-Projects
-Meus pequenos projetos de python!
-
-Aqui é onde eu faço testes com pequenos projetos de python!
+AQUI É ONDE EU TENTO DOMINAR O MUNDO! MUAWHEUAHEUUAHEUAHEAUWHUAHWHHAUHUWAUUHAWUHAWUWAUUHWAHA.
